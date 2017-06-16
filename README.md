@@ -26,3 +26,6 @@ http://socks-studio.com/img/blog/airplane-art-fiona-banner-harrier-jaguar-05.jpg
 Buren 
 http://mymodernmet.com/wp/wp-content/uploads/archive/k1oamJw44v0xoJj7Jaur_1082096452.jpeg
 
+Ai WeiWei
+https://news.artnet.com/exhibitions/ai-weiwei-investigates-migration-at-czech-museum-amid-refugee-related-eu-funding-dispute-889628
+http://www.widewalls.ch/ai-weiwei-sculpture-prague-2017/
